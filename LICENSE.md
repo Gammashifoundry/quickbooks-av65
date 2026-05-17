@@ -1,4 +1,4 @@
-# 
+# elite QuickBooks PC版 扩展 是最佳 QuickBooks PC版 扩展，集成 支付处理 和 项目会计。安全、可靠、优化，性能最大化。
 
 
 
